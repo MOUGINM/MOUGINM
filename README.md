@@ -1,1 +1,1 @@
-# Mehdi Mougin - Developer 🐍 AI Scholar 🤖
+# Developer 🐍 AI Scholar 🤖
