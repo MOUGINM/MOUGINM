@@ -1,1 +1,1 @@
-# Developer 🐍 AI Scholar 🤖
+# Developer AI 🐍 🤖
